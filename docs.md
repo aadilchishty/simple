@@ -1,5 +1,5 @@
 This documentation describes how to use the Pavel automated
-toothbrush. 
+toothbrush. Get it today! 
 123
 456
 Note that this toothbrush is totally safe to
